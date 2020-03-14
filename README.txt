@@ -32,3 +32,10 @@ Thinking of the places that we could live in peace I know I
 Wanna be free and wanna live happily Yes I know
 Know that the pursuit of happiness is an inalienable right 
 One that was given to me without the need for fight
+
+
+Link to the beat
+
+https://www.youtube.com/watch?v=1XYLkXXnF1g
+
+
