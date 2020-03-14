@@ -28,8 +28,8 @@ We came here for our freedom
 So best believe we getting that again
 I never promised loyalty to those I wouldn’t fight for them 
 So why we still believe that we’d be safe from the establishment (establishment)
-Thinking of the places that we could live in peace I know I 
-Wanna be free and wanna live happily Yes I know
+Thinking of the places that we could live in peace (yea I know) 
+Wanna be free and wanna live happily with glee  (yea I know)
 Know that the pursuit of happiness is an inalienable right 
 One that was given to me without the need for fight
 
