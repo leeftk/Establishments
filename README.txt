@@ -1,6 +1,6 @@
 #Establishments 
 
-
+(Verse 1)
 My pockets full of virtues 
 Ive been living off of verses
 Packing backpacks with my fears 
@@ -21,6 +21,8 @@ Giving back to the establishment
 Establishing establishments 
 
 (Chorus?)
+
+(Verse 2)
 I don’t think that we having it
 We came here for our freedom
 So best believe we getting that again
