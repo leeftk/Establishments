@@ -22,6 +22,22 @@ Establishing establishments
 
 (Chorus?)
 
+They said we're who the represent,
+
+But I don't really care no more I don't reall care no more,
+
+Drop that ballot in the bin,
+
+But I don't really care no more I don't really care no more,
+
+I think my voting is a sin,
+
+So I don't really care no more I don't really care no more,
+
+Does it matter in the end?
+
+Cause I don't really care no more, I don't really care no more
+
 (Verse 2)
 I don’t think that we having it
 We came here for our freedom
