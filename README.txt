@@ -27,7 +27,7 @@ I don’t think that we having it
 We came here for our freedom
 So best believe we getting that again
 I never promised loyalty to those I wouldn’t fight for them 
-So why we still believe the we’lol be safe from the establishment establishment
+So why we still believe that we’d be safe from the establishment (establishment)
 Thinking of the places that we could live in peace I know I 
 Wanna be free and wanna live happily Yes I know
 Know that the pursuit of happiness is an inalienable right 
