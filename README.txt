@@ -12,13 +12,7 @@ Spending a few more dollars now you got a few more delgetaes
 Fucking up our system but they don’t claim to be celibebte 
 Speaking truthfully the test is that
 They sold their soul, funded by the one percent 
-Spending money from the people 
-Getting rich is what they represent 
-All this starts to make some sense
-Our government is fullshit
-Taking money from the people 
-Giving back to the establishment 
-Establishing establishments 
+
 
 (Chorus?)
 
@@ -39,6 +33,13 @@ Does it matter in the end?
 Cause I don't really care no more, I don't really care no more
 
 (Verse 2)
+Spending money from the people 
+Getting rich is what they represent 
+All this starts to make some sense
+Our government is fullshit
+Taking money from the people 
+Giving back to the establishment 
+Establishing establishments 
 I don’t think that we having it
 We came here for our freedom
 So best believe we getting that again
