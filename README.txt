@@ -9,11 +9,10 @@ As I rocket across oceans
 Must I leave this place I love so much
 Politicians that I cannot trust
 All just run amok looking for rich donors to fund them up
-Claim to be one of us as they cover up lust
 Fucking our system after they say they are celibate
 Spend a few more dollars now they get a few more delegates
-Fuck a debt limit while the poor live in squalor
-They sold their soul and honor, who do they really represent?
+Fuck a bailout for the one percent
+They stole and sold our votes, who do they really represent?
 
 (Chorus?)
 But I don't think they care for y'all (x2)
