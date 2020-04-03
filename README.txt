@@ -2,7 +2,7 @@
 
 (Verse 1)
 yea
-My pockets full of virtues (really need to pronounce this clearly cause it sounds like you say 'verses')
+My pockets full of virtues
 Ive been living off of these verses
 Packing backpacks with my fears 
 As I rocket across oceans
